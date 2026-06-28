@@ -1,4 +1,4 @@
-# 
+# Turbo Foxit PDF Editor plugins para Mac OS | Novo Foxit PDF Editor plugins para PC Windows. Com fluxos de aprovação e atualizações em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
